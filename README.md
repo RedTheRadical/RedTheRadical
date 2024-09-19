@@ -1,3 +1,4 @@
+- Radical like cool not like politcally charged
 - 👋 Hi, I’m @RedTheRadical
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ... coding
